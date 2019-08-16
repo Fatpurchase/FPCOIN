@@ -1,0 +1,2 @@
+# FPCOIN
+FPCOIN Is the real anonymous cryptocurrency for securing your financial assets without  jeopardizing privacy. FPCOIN is more than just a digital revolution coin, it is a coin that solve real world financial crises that centralization has subjected us to. Buy FPCOIN with your desired currency, keep it in your centralised wallet on FPCOIN EXPLORER. Anonymity has left major cryptocurrencies. We no longer get the privacy that was promised at the beginning. FPCOIN has come to change that..
